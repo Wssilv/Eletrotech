@@ -1,2 +1,0 @@
-# Eletrotech
-Empresa de elétrica
